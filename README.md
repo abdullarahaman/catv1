@@ -1,3 +1,3 @@
-# THIS BOT BYPASS BY MR CHAND 
+# THIS BOT BYPASS BY 𝘼𝘽𝘿𝙐𝙇𝙇𝘼𝙑𝙏𝙀𝘾𝙃 49
 # FIX ALL PROBLEM
-# FEEL THE POWER OF CHAND TRICKER
+# 𝙋𝙊𝙒𝙀𝙍 𝙊𝙁 𝘾𝙔𝘽𝙀𝙍-𝘾𝘼𝙏
